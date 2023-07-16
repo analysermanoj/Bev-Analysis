@@ -18,4 +18,3 @@ The target audience is the Chief Marketing Officer, you have 15 minutes to prese
 Be creative with your presentation, audio/video presentation will have more weightage.
 You can use additional data based on your own research to support your recommendations
 Please note that it is possible that some respondents might not have answered all the questions sincerely. For instance, a person is more likely to have not tasted the drink if they haven’t heard about it. Sense-check the data and use your judgment to clean it as required.
-Example LinkedIn post
